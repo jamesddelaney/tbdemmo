@@ -1,1 +1,1 @@
-CFO's are awesome!
+CFO's are great!
